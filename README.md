@@ -1,4 +1,4 @@
-# Is-Omgflix-Safe-and-Legal
+# Is Omgflix Safe and Legal
 <!-- wp:paragraph -->
 <p><a href="https://www1.omgflix.com/">Omgflix</a> is a streaming site that claims to offer free access to hundreds of movies and TV shows. You can watch and download content in HD quality without registration or payment. Sounds too good to be true, right? Well, it is. In this article, we will reveal the truth about Omgflix and why you should avoid it. We will also show you some legal, free, and safe alternatives to Omgflix.</p>
 <!-- /wp:paragraph -->
